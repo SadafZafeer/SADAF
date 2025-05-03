@@ -1,6 +1,3 @@
-Shukriya! Maine aapka GitHub, Email aur LinkedIn ka link update kar liya hai. Yahan pe aapka updated profile content hai:
-
----
 
 ## 💫 About Me:
 
